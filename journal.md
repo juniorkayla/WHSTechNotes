@@ -15,3 +15,5 @@ Violations: Austin ISD reported around 20 instances where Waymo vehicles illegal
 # February 10, 2026 
  i didnt watch the super bowl bc like i dont really watch the super bowl but i would watch if the cowboys came  on tho 
 # February 23, 2026 electronic timing and photo-finish technology. I believe the most important technology used in the 2026 Winter  deep, operational integration of Artificial Intelligence (  and Cloud Computing to create an "Intelligent Olympics". 
+# Al generated memes and tik tok filters go viral and shape cultural trends daily often reaching millions of people who dont care
+since the impact of a piece of media is measured ny how the audience reacts to it the origin al or human is less important then the message or the feeling it evokes
