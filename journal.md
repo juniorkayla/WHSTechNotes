@@ -1,3 +1,7 @@
+
+
+
+
 # August 27, 2025
 
 Today, I created my first GitHub account and repository. I'm excited to start using GitHub for my projects!
@@ -19,3 +23,5 @@ Violations: Austin ISD reported around 20 instances where Waymo vehicles illegal
 since the impact of a piece of media is measured ny how the audience reacts to it the origin al or human is less important then the message or the feeling it evokes
 # may 6, 2026 
 : Recommender systems use this "behavioral data" to build a profile of your interests and predict what will keep you on the app longer. 
+# May 18, 2026 
+if my classmate went missing she has pink braids and shes dark skin and has on yellow jordans and has on a jackie and she is wearing a shirt and  Is she usually outgoing and talkative, Where they would probably be found in the woodies very loud keychain (like a giant fluffy ball), or wearing the exact same band hoodie every day, these items are immediately noticeable to bystanders.
